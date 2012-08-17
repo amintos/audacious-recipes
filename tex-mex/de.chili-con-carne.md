@@ -23,7 +23,7 @@ Zwiebeln fein würfeln, Paprika würfeln (ggf. Ingwer reiben und Chilis respektive
 
 Mit ca. 200ml Rotwein ablöschen, Paprika-Stücke und die gewünschte Menge Chilis und Cayenne-Pfeffer hinzugeben und so viel Wasser auffüllen, dass alles gerade so bedeckt ist. 5 gehäufte TL Paprikapulver, Ingwer und eine Prise Oregano zugeben, das ganze bei mittlerer Hitze kochen lassen, bis der Paprika die gewünschte Konsistenz hat (15 - 25 min.).
 
-Das Zwischenergebnis mit einigen EL Tomatenmark eindicken, bis die gewünschte Konsistenz erreicht ist. Wenige tropfen Sesamöl, ca. 1 gehäuften TL Koriander und 1 gestrichenen TL Cumin zugeben, 100ml weiteren Rotwein und die gut abgetropften Kidneybohnen zugeben. Abschmecken, ggf. mit Salz, Knoblauch oder Cumin nachwürzen.
+Das Zwischenergebnis mit einigen EL Tomatenmark eindicken, bis die gewünschte Konsistenz erreicht ist. Wenige Tropfen Sesamöl, ca. 1 gehäuften TL Koriander und 1 gestrichenen TL Cumin zugeben, 100ml weiteren Rotwein und die gut abgetropften Kidneybohnen zugeben. Abschmecken, ggf. mit Salz, Knoblauch oder Cumin nachwürzen.
 
 ### Varianten
 * **Rinderhackfleisch** verwenden. *Vorsichtiger würzen, um das Rind-Aroma nicht komplett untergehen zu lassen*.
