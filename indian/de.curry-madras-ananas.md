@@ -3,27 +3,26 @@ Curry "Madras" Ananas
 
 Zutaten
 -------
-***FÃ¼r 2 satte Portionen***
 
 ### Allgemein
-* ca. 350g **Hï¿½hnchenbrusfilet**
-* 3 **Frï¿½hlingszwiebeln** *(Nicht notwendig)*
+* ca. 350g **Hühnchenbrusfilet**
+* 3 **Frühlingszwiebeln** *(Nicht notwendig)*
 * 1 Dose **Kokosmilch**
-* 1 Dose **Ananasstï¿½cke**
+* 1 Dose **Ananasstücke**
 * ca. 250g **Basmati- oder Thai-Duftreis**
-* **Korianderblï¿½tter**
+* **Korianderblätter**
 * **Curcuma**
 
 ### Zusammensetzung der Curry-Paste
-*Die Zutanenmengen dienen der Orientierung und kï¿½nnen je nach Geschmack und Qualitï¿½t der Gewï¿½rze angepasst oder sogar ausgelassen werden.*
+*Die Zutanenmengen dienen der Orientierung und können je nach Geschmack und Qualität der Gewürze angepasst oder sogar ausgelassen werden.*
 
-* 1 groï¿½es Stï¿½ck **Ingwer**, gerieben
+* 1 großes Stück **Ingwer**, gerieben
 * 2 Zehen **Koblauch**, gepresst (Alternativ 1 TL Granulat)
 * 2 EL **Tomatenmark**
 * 2 TL **Paprikapulver**
 * 2 TL **Cayenne-Pfeffer**
 * 3 TL **Curry-Madras**
-* 1 TL **Sesamï¿½l**
+* 1 TL **Sesamöl**
 * 1 TL **Cumin**
 * 2 TL **Koriander**
 * 2 TL **Bockshornklee** (Alternativ mehr Currypulver)
@@ -35,14 +34,14 @@ Zutaten
 Zubereitung
 -----------
 
-### Hï¿½hnchen
-Die Currypaste wie oben beschrieben zusammensetzen und mit warmem Wasser verdï¿½nnen, wenn sie zu klebrig wird. Die Frï¿½hlingszwiebeln in Ringe schneiden und die Korianderblï¿½tter mit Stï¿½ngeln hacken. Die Hï¿½hnerbrust in mundgerechte Wï¿½rfel schneiden und *gut anbraten*. 
+### Hühnchen
+Die Currypaste wie oben beschrieben zusammensetzen und mit warmem Wasser verdünnen, wenn sie zu klebrig wird. Die Frühlingszwiebeln in Ringe schneiden und die Korianderblätter mit Stängeln hacken. Die Hühnerbrust in mundgerechte Würfel schneiden und *gut anbraten*. 
 
-Huhn und Bratensatz mit einem Glas Wasser aufgieï¿½en und die Curry-Paste darin lï¿½ffelweise einrï¿½hren und die gewï¿½nschte Menge Ananas-Stï¿½cke (halbe bis ganze Dose) zugeben. Bei niedriger Hitze einige Minuten kï¿½cheln lassen. Anschlieï¿½end mit Kokosmilch und ggf. Salz abschmecken und die Frï¿½hlingszwiebeln zugeben. Bei niedriger Hitze ziehen lassen, bis der Reis fertig ist.
+Huhn und Bratensatz mit einem Glas Wasser aufgießen und die Curry-Paste darin löffelweise einrühren und die gewünschte Menge Ananas-Stücke (halbe bis ganze Dose) zugeben. Bei niedriger Hitze einige Minuten köcheln lassen. Anschließend mit Kokosmilch und ggf. Salz abschmecken und die Frühlingszwiebeln zugeben. Bei niedriger Hitze ziehen lassen, bis der Reis fertig ist.
 
 ### Reis
-Den Reis mit reichlich Wasser in einen Topf geben und darin waschen. Das milchige Wasser abgieï¿½en, neues hinzufï¿½gen und weiter waschen. Den Vorgang wiederholen *bis das Wasser klar bleibt*. Dann den Reis im Wasser erhitzen und 3 min. kochen lassen. Durch ein Sieb abgieï¿½en. Den Topf 2 - 3 cm weit mit Wasser fï¿½llen, das Sieb mit dem Reis in den Topf hï¿½ngen und mit einem passenden Deckel abdecken. Durch das Verkochen des Wassers bei mittlerer Hitze wird der Reis gedï¿½mpft. Solange dï¿½mpfen, bis die gewï¿½nschte Konsistenz erreicht wird (ca. 5 - 15 min.). *Immer darauf achten, dass das Wasser nicht komplett verdampft und wenig Dampf entweicht.*
+Den Reis mit reichlich Wasser in einen Topf geben und darin waschen. Das milchige Wasser abgießen, neues hinzufügen und weiter waschen. Den Vorgang wiederholen *bis das Wasser klar bleibt*. Dann den Reis im Wasser erhitzen und 3 min. kochen lassen. Durch ein Sieb abgießen. Den Topf 2 - 3 cm weit mit Wasser füllen, das Sieb mit dem Reis in den Topf hängen und mit einem passenden Deckel abdecken. Durch das Verkochen des Wassers bei mittlerer Hitze wird der Reis gedämpft. Solange dämpfen, bis die gewünschte Konsistenz erreicht wird (ca. 5 - 15 min.). *Immer darauf achten, dass das Wasser nicht komplett verdampft und wenig Dampf entweicht.*
 
-Unter den fertigen Reis etwas Curcuma (max. 1 TL) mischen, bis er eine gelbe Fï¿½rbung erhï¿½lt, und feingeschnittene Korianderblï¿½tter unterheben. *Vorsichtig vorgehen, sonst zermatscht der Reis schnell*
+Unter den fertigen Reis etwas Curcuma (max. 1 TL) mischen, bis er eine gelbe Färbung erhält, und feingeschnittene Korianderblätter unterheben. *Vorsichtig vorgehen, sonst zermatscht der Reis schnell*
 
-Etwas frischen Koriander beim Servieren darï¿½berstreuen. 
+Etwas frischen Koriander beim Servieren darüberstreuen. 
