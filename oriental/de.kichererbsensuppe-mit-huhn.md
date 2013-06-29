@@ -3,9 +3,9 @@ Kichererbsensuppe mit Huhn
 
 Zutaten
 -------
-***(für zwei Portionen)***
+***(fï¿½r zwei Portionen)***
 
-* 300 - 400g **Hühnerbrust**
+* 300 - 400g **Hï¿½hnerbrust**
 * 2 Dosen **Kichererbsen** *(je ca. 250g Abtropfgewicht)*
 * 2 **Zwiebeln**
 * 2 - 3 **Tomaten**
@@ -14,13 +14,13 @@ Zutaten
 * 2 - 3 TL **Sambal Oelek**
 * 1 TL scharfe **Chiliflocken** *(z.B. Habanero)*
 * 2 - 3 TL **Ras El Hanout** *(alternativ Garam Masala)*
-* 5 Kapseln **grünen Kardamom**
+* 5 Kapseln **grï¿½nen Kardamom**
 
 Zubereitung
 -----------
 
-Das Huhn in mundgerechte Stücke sowie Zwiebel und Knoblauch in kleine Würfel schneiden. Die Tomaten wahlweise gehäutet oder ungehäutet in kleine Stücke schneiden. 
+Das Huhn in mundgerechte Stï¿½cke sowie Zwiebel und Knoblauch in kleine Wï¿½rfel schneiden. Die Tomaten wahlweise gehï¿½utet oder ungehï¿½utet in kleine Stï¿½cke schneiden. 
 
-Das Huhn in einem Topf mit Öl gold-gelb anbraten und dann Zwiebel, Knoblauch, Chiliflocken und Ras-El-Hanout zum schmoren dazugeben. Wenn die Zwiebel gold-gelb ist oder zu stark ansetzt, die Tomaten, Sambal Oelek und etwas Wasser zugeben und 5 - 10 Minuten unter regelmäßigem Rühren köcheln, dabei ggf. Wasser nachgießen. Die Kichererbsen abgießen, kurz abwaschen, zusammen mit dem Joghurt in den Topf geben und 5 - 10 min. auf niedriger Hitze durchziehen lassen.
+Das Huhn in einem Topf mit ï¿½l gold-gelb anbraten und dann Zwiebel, Knoblauch, Chiliflocken und Ras-El-Hanout zum schmoren dazugeben. Wenn die Zwiebel gold-gelb ist oder zu stark ansetzt, die Tomaten, Sambal Oelek und etwas Wasser zugeben und 5 - 10 min. unter regelmï¿½ï¿½igem Rï¿½hren kï¿½cheln, dabei ggf. Wasser nachgieï¿½en. Die Kichererbsen abgieï¿½en, kurz abwaschen, zusammen mit dem Joghurt in den Topf geben und 5 - 10 min. auf niedriger Hitze durchziehen lassen.
 
 
