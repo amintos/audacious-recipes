@@ -16,6 +16,6 @@ Zutaten
 Zubereitung
 -----------
 
-Huhn in kleine Stücke schneiden, Ingwer und Knoblauch reiben. Erdnüsse in einer Pfanne ohne Fett anrösten und anschließend im Mörser zu einer Paste verarbeiten. Das in der Pfanne verbliebene Erdnuss-Fett benutzen, um das Huhn anzubraten - dabei etwas Salz zugeben. Ist das Huhn gold-gelb, dann Ingwer, Knoblauch, Sojasoße und etwas Wasser zugeben und wenige Minuten schmoren lassen. Eventuell Wasser nachfüllen und die Erdnuss-Paste darin auflösen. Wenn die Erdnusspaste sich gut verteilt hat, die Kokosmilch zugeben und solange einkochen lassen, bis die gewünschte Konsistenz erreicht ist.
+Huhn in kleine Stücke schneiden, Ingwer und Knoblauch reiben. Erdnüsse in einer Pfanne ohne Fett anrösten und anschließend im Mörser zu einer Paste verarbeiten. Das in der Pfanne verbliebene Erdnussfett benutzen, um das Huhn anzubraten - dabei etwas Salz zugeben. Ist das Huhn gold-gelb, dann Ingwer, Knoblauch, Sojasoße und etwas Wasser zugeben und wenige Minuten schmoren lassen. Eventuell Wasser nachfüllen und die Erdnusspaste darin auflösen. Wenn die Erdnusspaste sich gut verteilt hat, die Kokosmilch zugeben und solange einkochen lassen, bis die gewünschte Konsistenz erreicht ist.
 
 Mit Reis servieren.
