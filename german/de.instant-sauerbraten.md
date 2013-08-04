@@ -25,7 +25,7 @@ Vorbereitung
 
 Rotwein, Hinbeeressig, Piment, Lorbeer, Wacholder und Nelken in einem Topf kurz aufkochen und 5 min. bei niedriger Hitze köcheln lassen. Die Marinade danach gut abkühlen.
 
-Die Schnitzel gründlich ausklopfen, evtl. mit einer Gabel einige dutzend mal anstechen, damit die Marinade gut eindringen kann. Schnitzel gründlich in die Marinade drücken, darin ein paar mal wenden und dann in der Marinade über Nacht im Kühlrschrank aufbewahren.
+Die Schnitzel gründlich ausklopfen, evtl. mit einer Gabel einige dutzend mal anstechen, damit die Marinade gut eindringen kann. Schnitzel gründlich in die Marinade drücken, darin ein paar mal wenden und dann in der Marinade über Nacht im Kühlschrank aufbewahren.
 
 Zubereitung
 -----------
