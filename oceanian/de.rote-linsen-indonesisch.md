@@ -18,6 +18,6 @@ Zutaten
 Zubereitung
 -----------
 
-Die Erdnüsse in einer Pfanne braun rösten und im Mörser zu einer Paste verarbeiten. Den Ingwer reiben. Rote Linsen abwaschen, 2 cm mit Wasser bedecken und zum Kochen bringen. Ingwer, Erdnusspaste, Garam Masala und Kardamom zugeben und mitkochen lassen. Mehr Wasser hinzugeben, falls alles aufgesogen wurde.
+Die Erdnüsse in einer Pfanne braun rösten und im Mörser zu einer Paste verarbeiten. Den Ingwer reiben. Rote Linsen abwaschen, 2 cm mit Wasser bedecken und zum Kochen bringen. Ingwer, Erdnusspaste, Muskatblüte, Garam Masala und Kardamom zugeben und mitkochen lassen. Mehr Wasser hinzugeben, falls alles aufgesogen wurde.
 
 Sobald die Linsen bissfest sind, Kokosmilch und Sambal Oelek zugeben und mit Sojasoße abschmecken. Auf niedriger Hitze 5 - 10 min. fertig köcheln lassen, bis die gewünschte Konsistenz erreicht ist, ggf. nochmals mit Sojasoße abschmecken.
