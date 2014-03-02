@@ -1,7 +1,7 @@
 Schaschlik mit Ofenkartoffel
 ============================
 
-![Foto](https://github.com/amintos/audacious-recipes/blob/master/audacious/images/de.schaschlik-mit-ofenkartoffel.jpg)
+![Foto](images/de.schaschlik-mit-ofenkartoffel.jpg)
 
 Zutaten
 -------
