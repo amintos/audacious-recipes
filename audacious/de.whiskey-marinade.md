@@ -1,5 +1,5 @@
-Whiskey-Marinade
-================
+Whisky-Marinade
+===============
 
 *auch als BBQ-Sauce geeignet*
 
@@ -13,14 +13,14 @@ Zutaten
 * 2 EL **Senf**
 * 3 EL **Sojasoße**
 * 4 EL **Worchestershire Sauce**
-* 5 - 10EL **Whiskey** *(Jack Daniels, Ballentines, ...)*
+* 5 - 10EL **Whisky** *(Jack Daniels, Ballentines, ...)*
 * 5 EL **Olivenöl**
 * Salz, Pfeffer
 
 Zubereitung
 -----------
 
-Zwiebel sehr fein hacken und zusammen mit dem Zucker im erhitzten Olivenöl 5 - 10 min. auf mittlerer Hitze karamellisieren lassen. Dabei ständig umrühren. Wenn die Zwiebeln eine deutliche Bräunung erreicht haben, Hitze abstellen und das Gefäß etwas auskühlen lassen. Dann die restlichen Zutaten beimischen. Mit Whiskey, Salz und Pfeffer abschmecken. Als Marinade für Fleich sollte großzügig Salz hinzugegeben werden.
+Zwiebel sehr fein hacken und zusammen mit dem Zucker im erhitzten Olivenöl 5 - 10 min. auf mittlerer Hitze karamellisieren lassen. Dabei ständig umrühren. Wenn die Zwiebeln eine deutliche Bräunung erreicht haben, Hitze abstellen und das Gefäß etwas auskühlen lassen. Dann die restlichen Zutaten beimischen. Mit Whisky, Salz und Pfeffer abschmecken. Als Marinade für Fleich sollte großzügig Salz hinzugegeben werden.
 
 **Vorsicht**: Das bratende Zwiebel-Karamell ist extrem heiß!
 
