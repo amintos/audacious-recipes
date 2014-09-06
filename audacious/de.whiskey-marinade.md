@@ -12,7 +12,7 @@ Zutaten
 * 3 EL **brauner Zucker**
 * 2 EL **Senf**
 * 3 EL **Sojasoße**
-* 4 EL **Worchestershire Sauce**
+* 4 EL **Worcestershire Sauce**
 * 5 - 10EL **Whisky** *(Jack Daniels, Ballentines, ...)*
 * 5 EL **Olivenöl**
 * Salz, Pfeffer
