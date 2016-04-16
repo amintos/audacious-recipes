@@ -4,38 +4,38 @@
 
 Gewürzmischung:
 
-	* 2 TL **Koriandersamen**
-	* 1 TL **Pfefferkörner**
-	* 1 TL **Kreuzkümmelsamen**
-	* 1/2 TL **Nelken**
-	* 1/2 TL **Muskat**
-	* 1/2 TL **Meersalz**, grob
-	* 3 Kapseln **Kardamom**, Samen, Schale entfernt
-	* 1/2 TL **Zimt**
+* 2 TL **Koriandersamen**
+* 1 TL **Pfefferkörner**
+* 1 TL **Kreuzkümmelsamen**
+* 1/2 TL **Nelken**
+* 1/2 TL **Muskat**
+* 1/2 TL **Meersalz**, grob
+* 3 Kapseln **Kardamom**, Samen, Schale entfernt
+* 1/2 TL **Zimt**
 
 Currypaste:
 
-	* 5 **Schalotten**, geschält
-	* 2 - 5 große **Chilis**, entkernt
-	* 12 **Garnelen** (ca. 3cm Größe), vorgegart
-	* 3 - 4 Zehen **Knoblauch**
-	* 1 daumengroßes Stück **Thai-Ingwer (Galanga)**, geschält
-	* 2 - 3 Stängel **Zitronengras**, geschält
-	* 5 - 10 **Korianderwurzeln** und -stiele (Blätter siehe unten)
-	* 1 **Limette**
+* 5 **Schalotten**, geschält
+* 2 - 5 große **Chilis**, entkernt
+* 12 **Garnelen** (ca. 3cm Größe), vorgegart
+* 3 - 4 Zehen **Knoblauch**
+* 1 daumengroßes Stück **Thai-Ingwer (Galanga)**, geschält
+* 2 - 3 Stängel **Zitronengras**, geschält
+* 5 - 10 **Korianderwurzeln** und -stiele (Blätter siehe unten)
+* 1 **Limette**
 
 Curry:
 
-	* 300 - 500g **Huhn**
-	* 1 handvoll **Erdnüsse**, geröstet
-	* 2 **Kartoffeln**
-	* 1 Dose **Kokosmilch**
-	* 1 rundes Stück **Palmzucker** (ca. 30g)
-	* 2 TL **Tamarindenpaste**
-	* 2 **Zimtstangen**
-	* 1 Stern **Anis**
-	* **Fischsauce**
-	* **Korianderblätter** (Stiele/Wurzeln siehe Currypaste)
+* 300 - 500g **Huhn**
+* 1 handvoll **Erdnüsse**, geröstet
+* 2 **Kartoffeln**
+* 1 Dose **Kokosmilch**
+* 1 rundes Stück **Palmzucker** (ca. 30g)
+* 2 TL **Tamarindenpaste**
+* 2 **Zimtstangen**
+* 1 Stern **Anis**
+* **Fischsauce**
+* **Korianderblätter** (Stiele/Wurzeln siehe Currypaste)
 
 ## Zubereitung
 
