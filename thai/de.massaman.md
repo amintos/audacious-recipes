@@ -1,4 +1,4 @@
-# Massaman-Curry
+# Massaman Chicken Curry
 ## Zutaten
 *(für 2 - 3 Portionen)*
 
