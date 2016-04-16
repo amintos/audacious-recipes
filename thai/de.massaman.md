@@ -50,3 +50,10 @@ Huhn in Stücke schneiden, Kartoffel in kleine Würfel (1cm) schneiden und die E
 Auf mittlerer Hitze kochen bis die Kartoffeln durch sind (mindestens 20 min.). Tamarinde einrühren, mit weiterem Zucker und Fischsauce abschmecken und 10 - 20 min. auf niedriger Hitze köcheln lassen bis das Huhn zart genug ist.
 
 Mit Reis, darübergestreuten Korianderblättern und Erdnüssen servieren.
+
+## Fotos
+![](https://raw.githubusercontent.com/amintos/audacious-recipes/master/thai/massaman/massaman-roast.jpg)
+![](https://raw.githubusercontent.com/amintos/audacious-recipes/master/thai/massaman/massaman-spices.jpg)
+![](https://raw.githubusercontent.com/amintos/audacious-recipes/master/thai/massaman/massaman-paste.jpg)
+![](https://raw.githubusercontent.com/amintos/audacious-recipes/master/thai/massaman/massaman-cooking.jpg)
+![](https://raw.githubusercontent.com/amintos/audacious-recipes/master/thai/massaman/massaman-curry.jpg)
